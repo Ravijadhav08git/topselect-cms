@@ -12,8 +12,6 @@ image: img/1.jpg
 
 Why we should buy this mobile? While buying mobile we need to about many features of that mobile so it's working buying that mobile or not. we will help you make a decision, we try to give more detailed features list that device. so you decide its worth for money or not.
 
-
-
 * Versatile 64MP Quad camera, its huge 4 cameras with flash and Rear Camera - Auto Focus
 * * The main camera comes with 64MP, F1.8 aperture faster in actions
   * The second camera comes with 12MP, F2.2 ultra-wide-angle
@@ -43,12 +41,6 @@ Its dual sim mobile with support 4G networks in both slots.
   * Wifi 802.11 a/b/g/n/ac 2.4+5GHz
   * Fast face unlock and fingerprint sensor | Dual SIM (nano+nano) with dual standby and dual VoLTE, Dedicated Sim slot
 
-    <!--StartFragment-->
-
     The price worth forth buying this mobile, we give 👍
-
-    <!--EndFragment-->[Click here buy ](https://amzn.to/3bptD8d)
-
-
 
 <!--EndFragment-->
