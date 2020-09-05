@@ -1,28 +1,13 @@
 ---
-title: 'Just in: small batch of Jamaican Blue Mountain in store next week'
+title: Handpicked Tshirts for Men for the month August
 date: 2017-01-04T15:04:10.000Z
-description: >-
-  We’re proud to announce that we’ll be offering a small batch of Jamaica Blue
-  Mountain coffee beans in our store next week.
+description: We have some of the good collections based on the style, user
+  reviews and selling stats from the amazon website. Click here to see top
+  stylish t-shirt from amazon ocean.
+image: img/31w-h7eytml.._sx._ux._sy._uy_.jpg
 ---
+<!--StartFragment-->
 
-We expect the shipment of a limited quantity of green beans next Monday. We’ll be offering the roasted beans from Tuesday, but quantities are limited, so be quick.
+![](https://ir-in.amazon-adsystem.com/e/ir?t=ravijadhav-21&language=en_IN&l=li3&o=31&a=B07RWLG3XC) [![](https://ws-in.amazon-adsystem.com/widgets/q?_encoding=UTF8&ASIN=B089NVPZ72&Format=_SL250_&ID=AsinImage&MarketPlace=IN&ServiceVersion=20070822&WS=1&tag=ravijadhav-21&language=en_IN)](https://www.amazon.in/dp/B089NVPZ72/ref=as_li_ss_il?&linkCode=li3&tag=ravijadhav-21&linkId=544bcd1b1d7cd923c0bdf48ae9e4b8c8&language=en_IN)![](https://ir-in.amazon-adsystem.com/e/ir?t=ravijadhav-21&language=en_IN&l=li3&o=31&a=B089NVPZ72) [![](https://ws-in.amazon-adsystem.com/widgets/q?_encoding=UTF8&ASIN=B07RRQKQ1B&Format=_SL250_&ID=AsinImage&MarketPlace=IN&ServiceVersion=20070822&WS=1&tag=ravijadhav-21&language=en_IN)](https://www.amazon.in/dp/B07RRQKQ1B/ref=as_li_ss_il?&linkCode=li3&tag=ravijadhav-21&linkId=605d2e29feb356d5d1adf9810b8e287b&language=en_IN)![](https://ir-in.amazon-adsystem.com/e/ir?t=ravijadhav-21&language=en_IN&l=li3&o=31&a=B07RRQKQ1B) [![](https://ws-in.amazon-adsystem.com/widgets/q?_encoding=UTF8&ASIN=B071YKG7WY&Format=_SL250_&ID=AsinImage&MarketPlace=IN&ServiceVersion=20070822&WS=1&tag=ravijadhav-21&language=en_IN)](https://www.amazon.in/dp/B071YKG7WY/ref=as_li_ss_il?&linkCode=li3&tag=ravijadhav-21&linkId=400e26b0f1c0e898dfeb2689f1c97e1e&language=en_IN)![](https://ir-in.amazon-adsystem.com/e/ir?t=ravijadhav-21&language=en_IN&l=li3&o=31&a=B071YKG7WY) [![](https://ws-in.amazon-adsystem.com/widgets/q?_encoding=UTF8&ASIN=B07C7WT5L9&Format=_SL250_&ID=AsinImage&MarketPlace=IN&ServiceVersion=20070822&WS=1&tag=ravijadhav-21&language=en_IN)](https://www.amazon.in/dp/B07C7WT5L9/ref=as_li_ss_il?&linkCode=li3&tag=ravijadhav-21&linkId=8c5d70fb2d04d7bbe543f031929e9a94&language=en_IN)![](https://ir-in.amazon-adsystem.com/e/ir?t=ravijadhav-21&language=en_IN&l=li3&o=31&a=B07C7WT5L9) [![](https://ws-in.amazon-adsystem.com/widgets/q?_encoding=UTF8&ASIN=B075KJ7CS6&Format=_SL250_&ID=AsinImage&MarketPlace=IN&ServiceVersion=20070822&WS=1&tag=ravijadhav-21&language=en_IN)](https://www.amazon.in/dp/B075KJ7CS6/ref=as_li_ss_il?&linkCode=li3&tag=ravijadhav-21&linkId=36c4726bbbb23f2df6a60cda696776ed&language=en_IN)![](https://ir-in.amazon-adsystem.com/e/ir?t=ravijadhav-21&language=en_IN&l=li3&o=31&a=B075KJ7CS6) [![](https://ws-in.amazon-adsystem.com/widgets/q?_encoding=UTF8&ASIN=B07RNM4SRD&Format=_SL250_&ID=AsinImage&MarketPlace=IN&ServiceVersion=20070822&WS=1&tag=ravijadhav-21&language=en_IN)](https://www.amazon.in/dp/B07RNM4SRD/ref=as_li_ss_il?&linkCode=li3&tag=ravijadhav-21&linkId=db28bbdfb81abc4cdcb10753eb9240da&language=en_IN)![](https://ir-in.amazon-adsystem.com/e/ir?t=ravijadhav-21&language=en_IN&l=li3&o=31&a=B07RNM4SRD) [![](https://ws-in.amazon-adsystem.com/widgets/q?_encoding=UTF8&ASIN=B07Q38BHTX&Format=_SL250_&ID=AsinImage&MarketPlace=IN&ServiceVersion=20070822&WS=1&tag=ravijadhav-21&language=en_IN)](https://www.amazon.in/dp/B07Q38BHTX/ref=as_li_ss_il?&linkCode=li3&tag=ravijadhav-21&linkId=5d344fdb70d938c828fd9c82ddddba66&language=en_IN)![](https://ir-in.amazon-adsystem.com/e/ir?t=ravijadhav-21&language=en_IN&l=li3&o=31&a=B07Q38BHTX) [![](https://ws-in.amazon-adsystem.com/widgets/q?_encoding=UTF8&ASIN=B07V7YCFLW&Format=_SL250_&ID=AsinImage&MarketPlace=IN&ServiceVersion=20070822&WS=1&tag=ravijadhav-21&language=en_IN)](https://www.amazon.in/dp/B07V7YCFLW/ref=as_li_ss_il?&linkCode=li3&tag=ravijadhav-21&linkId=42d0b653bbfc3043b5beba17c0b8d873&language=en_IN)
 
-Blue Mountain Peak is the highest mountain in Jamaica and one of the highest peaks in the Caribbean at 7,402 ft. It is the home of Blue Mountain coffee and their famous tours. It is located on the border of the Portland and Saint Thomas parishes of Jamaica.
-
-## A little history
-
-The Blue Mountains are considered by many to be a hiker's and camper's paradise. The traditional Blue Mountain trek is a 7-mile hike to the peak and consists of a 3,000-foot increase in elevation. Jamaicans prefer to reach the peak at sunrise, thus the 3–4 hour hike is usually undertaken in darkness. Since the sky is usually very clear in the mornings, Cuba can be seen in the distance.
-
->Some of the plants found on the Blue Mountain cannot be found anywhere else in the world and they are often of a dwarfed sort.
-
-This is mainly due to the cold climate which inhibits growth. The small coffee farming communities of Claverty Cottage and Hagley Gap are located near the peak.
-
-## What you need to know before trying
-
-Jamaican Blue Mountain Coffee or Jamaica Blue Mountain Coffee is a classification of coffee grown in the Blue Mountains of Jamaica. The best lots of Blue Mountain coffee are noted for their mild flavor and lack of bitterness. Over the past few decades, this coffee has developed a reputation that has made it one of the most expensive and sought-after coffees in the world. Over 80% of all Jamaican Blue Mountain Coffee is exported to Japan. In addition to its use for brewed coffee, the beans are the flavor base of Tia Maria coffee liqueur.
-
-Jamaican Blue Mountain Coffee is a globally protected certification mark, meaning only coffee certified by the Coffee Industry Board of Jamaica can be labeled as such. It comes from a recognized growing region in the Blue Mountain region of Jamaica, and its cultivation is monitored by the Coffee Industry Board of Jamaica.
-
-The Blue Mountains are generally located between Kingston to the south and Port Antonio to the north. Rising 7,402 ft, they are some of the highest mountains in the Caribbean. The climate of the region is cool and misty with high rainfall. The soil is rich, with excellent drainage. This combination of climate and soil is considered ideal for coffee.
-
+<!--EndFragment-->
